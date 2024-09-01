@@ -4,3 +4,6 @@
 > I am currently pursuing _Cyber Security_ at **FAST NUCES**.
 
 ### My Hobbies
+- Playing Football
+- Working Out
+- Reading Books
